@@ -33,4 +33,4 @@ FC2频道精选：真实素人流出影片丰富，更新稳定。
 建议使用广告拦截插件、无痕浏览模式，并关注影片是否标注出处或番号，提升观感同时保障隐私。若需下载，请使用正规软件工具，避免恶意弹窗或病毒侵扰。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/inn234/9454 ）</span>
